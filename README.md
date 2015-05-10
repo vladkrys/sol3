@@ -1,3 +1,0 @@
-# sol3
-
-sadasdsadsaafaefa
